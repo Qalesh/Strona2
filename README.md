@@ -1,1 +1,1 @@
-# Strona2
+# Strona internetowa szkolna
